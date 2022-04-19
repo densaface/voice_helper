@@ -1,0 +1,1 @@
+https://www.youtube.com/watch?v=dXmkT8uGQf8 - тут длинное и долгое описание первого коммита
